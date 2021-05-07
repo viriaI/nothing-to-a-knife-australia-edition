@@ -9,3 +9,5 @@ step 6 - cash them in at spar and if u have enough ask the indian you’d like t
 step 7 - if unsuccessful visit summerland bank on same street hoping u are with them cause no commbank and deposits ur money  
 step 8 - if no summerland go to ballina commbank branch or atm and deposit  
 step 9 - visit bitskins.com and select your knife and if there are any codes use code gnade  
+
+by Naukes
